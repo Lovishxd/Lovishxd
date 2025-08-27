@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mlovish1509@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14NlIYqLucbAAAtjJN9fpCl1BBwZehnhz/view?usp=sharing](https://drive.google.com/file/d/14NlIYqLucbAAAtjJN9fpCl1BBwZehnhz/view?usp=sharing)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/17ONSIZO8r3WJPNbtbJTiuBBz7osS6ZRb/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
